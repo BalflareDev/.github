@@ -34,7 +34,7 @@ By combining our engineering expertise with cutting-edge AI technologies, we're 
 
 For inquiries or collaborations, please reach out to us:
 
-Twitter: @lorernipsurn
+Twitter(X): @lipsurn
 
 ---
 
